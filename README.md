@@ -1,15 +1,17 @@
-##* hi there 🤟
+## *hi there 🤟*
 
 
 *CSI-Diego-Zubrzycki/CSI-Diego-Zubrzycki* is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-🍁tiktok-(30K) 
+*soy estudiante y me gustan los temas sobre deportes.*
 
-- *🪵my name is Diego
+- *🍁tiktok-(30K)*
 
-- *🪴i play tennis
+- *🪵my name is Diego*
 
-- *🥀i like ahs and harry potter
+- *🪴i play tennis*
 
-- *🌞im from puerto rico
+- *🥀i like ahs and harry potter*
+
+- *🌞im from puerto rico*
 
