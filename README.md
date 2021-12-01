@@ -5,11 +5,11 @@
 
 🍁tiktok-(30K) 
 
--🪵my name is Diego
+- 🪵my name is Diego
 
--🪴i play tennis
+- 🪴i play tennis
 
--🥀i like ahs and harry potter
+- 🥀i like ahs and harry potter
 
--🌞im from puerto rico
+- 🌞im from puerto rico
 
