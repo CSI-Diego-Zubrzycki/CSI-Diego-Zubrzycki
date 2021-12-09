@@ -1,5 +1,13 @@
+<div align="center">
+ 
+<img src="https://www.goya.com/media/4480/yuca-empanadas.jpg?quality=80" width="520" height="374" />
+                                                                                            
+ 
 # *manjanes navideños*
 ## *pasteles de yuca<3*
+                      
+</div>
+                        
 ### *ingredientes-*
 - ***🥛1/2*** *taza de leche evaporada*
 - *🧂sal al gusto*
