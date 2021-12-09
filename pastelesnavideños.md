@@ -3,7 +3,7 @@
 <img src="https://www.goya.com/media/4480/yuca-empanadas.jpg?quality=80" width="520" height="374" />
                                                                                             
  
-# *manjanes navideños*
+# Manjares navideños*
 ## *pasteles de yuca<3*
                       
 </div>
@@ -21,7 +21,7 @@
 - *hilo para amarrar*
 - *aceite con achiote*
  
- ### *procedimientos-*
+### *procedimientos-*
 1. *damos comienzo a esta receta lavando y desinfectando la yuca, dejamos escurrir hasta que estén secas y lista para comenzar esta preparación*
 2. *continuando con la receta vamos a cortar y retirar la cascara de la yuca, nos vamos apoyar con un cuchillo una vez este limpia colocamos en un recipiente con agua para evitar que se ponga negra la yuca.*
 3. *paso seguido vamos a rallar la yuca puedes hacerlo en un procesador de alimentos hasta obtener una masa la cual será el ingrediente principal de este plato típico.*
